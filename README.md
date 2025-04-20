@@ -19,3 +19,5 @@ i really love pusheen and i have a lot of pusheen things 2
 im hemophobic scared of blood 
 
 im a leo 
+
+and before u int dont talk wme about soem gensin ships nggghhhhhhhh i wont roleplay some hcil x zongli i dont ship anyting 
