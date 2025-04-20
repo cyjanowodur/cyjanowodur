@@ -1,3 +1,5 @@
+[beware of wiktor](https://rentry.co/bewareofwiktor) !!! exposing truth
+
 im to lazy to make ts prerty
 
 she/her plenng but im not that good at english sometimes i can misunderstand sorry
