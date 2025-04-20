@@ -6,8 +6,8 @@ iidont really play hoyo games anymore i just have skins and friends here at ts a
 
 games i usulay paly : quake, crazycattle3d, wuwa, roblox, pixel restorer, schelude 1, mincraft , wiedźmin adn m
 ore ubt i dont remeba now
-dd i listen mainly to alt rock and gothi my favo r sonic youth, the stone roses, jessica93, breadwinner, black doldrums, sisters of mercy, the cure(faith 
 
+dd i listen mainly to alt rock and gothi my favo r sonic youth, the stone roses, jessica93, breadwinner, black doldrums, sisters of mercy, the cure(faith 
 especially), faith and the muse, london after midnight, from polish artist i listen mostly punk bot sometimes metal -  hamulec, the bill, defekt muzgó, vader, behemot, twoya stara of death, noi moze siekiere ale to zadko jus specjalnie ale mam od nich kasete wsm
 
 more abt me - im interested in birds, my favourite one is robin
