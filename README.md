@@ -12,4 +12,5 @@ przepraszam ale jestem chory, mam depresje i chorobe alkoholowa, nie jestem w st
 6. mam zalamanie nerwoe
 7. dsotalem juz 100 warnow
 8. ciagle mam mute
-![](https://media.discordapp.net/attachments/1083829372936536087/1368591954082005092/image.png?ex=6818c815&is=68177695&hm=99579522e7075ec1162b44bcc1c7ceb8c8d699d96900fb94af34fe9e99b83f15&=&format=webp&quality=lossless&width=1191&height=855)
+   ## Add me on wuwa uid : 604097157
+![](https://media.discordapp.net/attachments/1083829372936536087/1368592516810674217/image.png?ex=6818c89b&is=6817771b&hm=a771ae9f515e4819e4124f7766b772e95793386ac5be784cd4d999f1f9f8b533&=&format=webp&quality=lossless&width=688&height=386)
