@@ -1,5 +1,6 @@
 ## JULKA jezeli to widzisz to kurwo wypierdalaj
-![](https://media.discordapp.net/attachments/1083829372936536087/1369391392320913509/image.png?ex=681bb09d&is=681a5f1d&hm=fa2f25212f41adb3b2d305053f8224332ab3ced1e2ccfce3ca6a4bb8427dade6&=&format=webp&quality=lossless&width=525&height=438) ![](https://media.discordapp.net/attachments/1083829372936536087/1369392870666010725/image.png?ex=681bb1fe&is=681a607e&hm=d13c31c38dc5b2d576b46184a1f26e15cf9deacfd6292e721f80418704a204f5&=&format=webp&quality=lossless&width=449&height=27)
+![](https://media.discordapp.net/attachments/1083829372936536087/1369391392320913509/image.png?ex=681bb09d&is=681a5f1d&hm=fa2f25212f41adb3b2d305053f8224332ab3ced1e2ccfce3ca6a4bb8427dade6&=&format=webp&quality=lossless&width=525&height=438) 
+![](https://media.discordapp.net/attachments/1083829372936536087/1369392870666010725/image.png?ex=681bb1fe&is=681a607e&hm=d13c31c38dc5b2d576b46184a1f26e15cf9deacfd6292e721f80418704a204f5&=&format=webp&quality=lossless&width=449&height=27)
 ![](https://media.discordapp.net/attachments/1083829372936536087/1369392870666010725/image.png?ex=681bb1fe&is=681a607e&hm=d13c31c38dc5b2d576b46184a1f26e15cf9deacfd6292e721f80418704a204f5&=&format=webp&quality=lossless&width=449&height=270)
 bangladesz bangladesz
 przepraszam ale jestem chory, mam depresje i chorobe alkoholowa, nie jestem w stanie z tym sobie poradzic a ty sie ze mnie wysmiewasz? chuj cwelu jebany, dam ci w ryj jak sie jeszcze raz tak do mnie odniosiesz
