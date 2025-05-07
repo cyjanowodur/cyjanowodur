@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/72772aaf-3e3c-46ca-b021-66c05dd9df98)
 ## JULKA jezeli to widzisz to kurwo wypierdalaj
-![](https://media.discordapp.net/attachments/1083829372936536087/1369669311064444938/image.png?ex=681cb372&is=681b61f2&hm=edfd10b15d8b203fa36c64c71b8a9882aba4841c33d1e52d718a9ac983aeee6e&=&format=webp&quality=lossless&width=490&height=438)
+
 ![](https://media.discordapp.net/attachments/1083829372936536087/1369391392320913509/image.png?ex=681bb09d&is=681a5f1d&hm=fa2f25212f41adb3b2d305053f8224332ab3ced1e2ccfce3ca6a4bb8427dade6&=&format=webp&quality=lossless&width=525&height=438) 
 ![](https://media.discordapp.net/attachments/1358177433982992406/1369026268674261113/image.png?ex=681b0551&is=6819b3d1&hm=a188b6c7d7d3fcefe6127ae0c5224d12085a4286ff8174af78fe52b239c10efd&=&format=webp&quality=lossless&width=458&height=725)
 bangladesz bangladesz
