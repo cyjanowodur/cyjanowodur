@@ -1,5 +1,5 @@
 ## yall im rarity and pinkie pie 
-![image](https://github.com/user-attachments/assets/72772aaf-3e3c-46ca-b021-66c05dd9df98)
+![image](https://media.discordapp.net/attachments/1083829372936536087/1369669311064444938/image.png?ex=681cb372&is=681b61f2&hm=edfd10b15d8b203fa36c64c71b8a9882aba4841c33d1e52d718a9ac983aeee6e&=&format=webp&quality=lossless&width=490&height=438)
 
 
 ## JULKA jezeli to widzisz to kurwo wypierdalaj
