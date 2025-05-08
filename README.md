@@ -1,6 +1,6 @@
 ## yall im rarity and pinkie pie 
 ![image](https://media.discordapp.net/attachments/1083829372936536087/1369669311064444938/image.png?ex=681cb372&is=681b61f2&hm=edfd10b15d8b203fa36c64c71b8a9882aba4841c33d1e52d718a9ac983aeee6e&=&format=webp&quality=lossless&width=490&height=438)
-
+![](https://media.discordapp.net/attachments/1083829372936536087/1370032406375038976/image.png?ex=681e059b&is=681cb41b&hm=4e63001a73e326ce652cab04684c55bd90e85ec27a122a98cb12f4c85aa835eb&=&format=webp&quality=lossless&width=403&height=286)
 
 ## JULKA jezeli to widzisz to kurwo wypierdalaj
 ![](https://i.pinimg.com/736x/81/28/83/8128831dd3bec42d141be661f73163be.jpg)
