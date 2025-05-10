@@ -5,7 +5,7 @@
 ## JULKA jezeli to widzisz to kurwo wypierdalaj
 ![](https://i.pinimg.com/736x/81/28/83/8128831dd3bec42d141be661f73163be.jpg)
 ![](https://media.discordapp.net/attachments/1083829372936536087/1369391392320913509/image.png?ex=681bb09d&is=681a5f1d&hm=fa2f25212f41adb3b2d305053f8224332ab3ced1e2ccfce3ca6a4bb8427dade6&=&format=webp&quality=lossless&width=525&height=438) 
-![](https://media.discordapp.net/attachments/1358177433982992406/1369026268674261113/image.png?ex=681b0551&is=6819b3d1&hm=a188b6c7d7d3fcefe6127ae0c5224d12085a4286ff8174af78fe52b239c10efd&=&format=webp&quality=lossless&width=458&height=725)
+
 bangladesz bangladesz
 przepraszam ale jestem chory, mam depresje i chorobe alkoholowa, nie jestem w stanie z tym sobie poradzic a ty sie ze mnie wysmiewasz? chuj cwelu jebany, dam ci w ryj jak sie jeszcze raz tak do mnie odniosiesz
 ![](https://media.discordapp.net/attachments/1083829372936536087/1363913836226281573/latest.png?ex=6807c33e&is=680671be&hm=d9111607b3d4830fbab51fb7647cc72a2fb32a1fbbf25202c385f929c82d10b8&=&format=webp&quality=lossless&width=765&height=510)
