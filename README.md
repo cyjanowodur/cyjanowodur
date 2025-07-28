@@ -6,3 +6,4 @@ i love yuri
  
 
 rhea's obssesion most loyal listener
+i really like magical girls 
