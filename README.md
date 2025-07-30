@@ -11,6 +11,6 @@ i really like magical girls
 # add me on wuwa guys
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1389945422067269664/1400040229238341733/image.png?ex=688b3092&is=6889df12&hm=41c876b3ba2d8ea5c1c5aa6a5bf1549f4127872ff2198dbc3c5ef22db54120c0&=&format=webp&quality=lossless&width=1423&height=800" alt="gyat" />
+  <img src="https://media.discordapp.net/attachments/1389945422067269664/1400041015221682206/image.png?ex=688b314d&is=6889dfcd&hm=6c6d23940d1244d0d068f5f7bb4a4e3a521ac06c1b6d555a52fd73e8d2f0d090&=&format=webp&quality=lossless&width=1423&height=800" alt="gyat" />
 </p>
 <p align="center">
