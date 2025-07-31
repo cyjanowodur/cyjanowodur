@@ -11,4 +11,7 @@
 rhea's obssesion most loyal listener
 i really like magical girls 
 
-
+<p align="center">
+  <img src="https://i.pinimg.com/736x/92/b4/0a/92b40a11f36445bfda1826100a556799.jpg" alt="gyat" />
+</p>
+<p align="center">
