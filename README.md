@@ -1,5 +1,5 @@
 <div align=center>
-![](https://komarev.com/ghpvc/?username=YOUR USERNAME HERE&color=FFB6C1)
+![](https://komarev.com/ghpvc/?username=cyjanowodur&color=FFB6C1)
 </div> 
 
 # 13, i go by whatever aslong as im recognized as a thing, i am a <F<E<M<B<O><Y<> i was given unrestricted access to the internet at a young age so i am severely mentally ill, i have: ADHD, depression, severe social anxiety, (corn) addiction, body dysphoria, gender dysphoria, severe self hate. A quote from breaking bad sums me up "Danger? There is no danger, I AM THE DANGER" I am freakier then anybody :3
