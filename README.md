@@ -1,6 +1,13 @@
 ![](https://komarev.com/ghpvc/?username=cyjanowodur&color=FFB6C1)
 
-# 13, i go by whatever aslong as im recognized as a thing, i am a <F<E<M<B<O><Y<> i was given unrestricted access to the internet at a young age so i am severely mentally ill, i have: ADHD, depression, severe social anxiety, (corn) addiction, body dysphoria, gender dysphoria, severe self hate. A quote from breaking bad sums me up "Danger? There is no danger, I AM THE DANGER" I am freakier then anybody :3
+# hello i am a attractive 20 year old slavic blonde woman (im a virgin) looking for a very handsome (but not american) boyfriend 
+raqurements:
+-atleadt 22 years old
+smart
+-handosme
+doesnt have to be tall
+dominant
+wants to get married in the future🥰🥰🥰🥰
  Gacha Life age regression healed me
 
 <p align="center">
