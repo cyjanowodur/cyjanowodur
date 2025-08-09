@@ -1,13 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=cyjanowodur&color=FFB6C1)
 
-# hello i am a attractive 20 year old slavic blonde woman (im a virgin) looking for a very handsome (but not american) boyfriend 
-raqurements:
--atleadt 22 years old
-smart
--handosme
-doesnt have to be tall
-dominant
-wants to get married in the future🥰🥰🥰🥰
+## hello i am a attractive 20 year old slavic blonde woman (im a virgin) looking for a very handsome (but not american) boyfriend raqurements:
+# -atleadt 22 years old
+# smart
+# -handosme
+# doesnt have to be tall
+# dominant
+# wants to get married in the future🥰🥰🥰🥰
  Gacha Life age regression healed me
 
 <p align="center">
