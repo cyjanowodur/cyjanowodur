@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=cyjanowodur&color=FFB6C1)
+![](https://komarev.com/ghpvc/?username=cyjanowodur&color=8be0d2)
 # look at my strawpage
 
 
