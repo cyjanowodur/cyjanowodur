@@ -1,15 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=cyjanowodur&color=FFB6C1)
 # look at my strawpage
 
-<p align="center">
-  <img src="hhttps://i.pinimg.com/736x/00/f3/e2/00f3e25cf52b28b0e1e2a95b94d1136c.jpg" alt="gyat" />
-</p>
-<p align="center">
- 
-
-
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/92/b4/0a/92b40a11f36445bfda1826100a556799.jpg" alt="gyat" />
+  <img src="https://media.discordapp.net/attachments/1389945422067269664/1425134534369869954/496975460_1236489058481166_8343305088565841683_n.png?ex=68ee6476&is=68ed12f6&hm=2d109fb3918db7e2d000bb14daa19abeb17bb340e75ec9d65210c8dc20d9b898&=&format=webp&quality=lossless&width=724&height=600" alt="gyat" />
 </p>
 <p align="center">
