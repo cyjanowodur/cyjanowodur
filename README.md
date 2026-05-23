@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=cyjanowodur&color=8be0d2)
-# look at my strawpage
+# look at my strawpage (its wip tho rn)
 
 
 <p align="center">
