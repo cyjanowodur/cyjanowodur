@@ -6,7 +6,8 @@ Or, if you love me, I have some beautiful scars. Maybe you can remember them; wh
   
 </p>
 check out this link
-https://rentry.co/BEWAREOFVLVACE
+https://rentry.co/bewareofvlv
+
 not really longer active, if so mostly afk whisper if u want anythin
 iwc dni lol 
 <p align="center">
