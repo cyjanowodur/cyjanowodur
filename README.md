@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=cyjanowodur&color=8be0d2)
 # look at my strawpage (its wip rn tho)
-Or, if you love me, I have some beautiful scars. Maybe you can remember them; what matters is that they’re not just ordinary scratches from childhood, but scars from real battles, or scars left by my thoughts when I wasn’t feeling my best. Honestly, I don’t really have a problem with it if you don’t want to remember me, and I don’t have an ego like a certain member of BTS.
+looking for egirl to play the game with and start out as friends but eventually you develop feelings for me because im so incredibly good at valorant and you praise me and you instalock sage and you make me bark for heal and meow for rez and tell me im a good boy and then after a while (you love me at this point) you become so obsessed you stop talking to everyone else and you lose all your friends and your social life is horrible and we only talk to eachother type ship pls add me PLS
+
 <p align="center">
   <img src="https://i.pinimg.com/736x/17/d5/fd/17d5fdf74f5b1f291ceef7698b594437.jpg" alt="gyat" />
   
