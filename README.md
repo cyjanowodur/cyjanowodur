@@ -6,7 +6,8 @@ looking for egirl to play the game with and start out as friends but eventually 
   <img src="https://i.pinimg.com/736x/17/d5/fd/17d5fdf74f5b1f291ceef7698b594437.jpg" alt="gyat" />
   
 </p>
-
+thank u @loveevolution for this fanart : (me is frist one)
+https://www.youtube.com/shorts/WigTGEdSc-o
 
 not really longer active, if so mostly afk whisper if u want anythin
 iwc dni lol 
